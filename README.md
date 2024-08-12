@@ -5,5 +5,5 @@ Hello!!✨
 - 💬 Ask me about anything!! I love talking 🌙
 - 📫 How to reach me: ✉️ lynn.lars20@gmail.com
 - 🎥 Currently watching: Bobs Burgers 🍔
-- 📖 Currently reading: The Litte Book Of Cottagecore 🌾
+- 📖 Currently reading: Midnight in Chernobyl ☢️
 
