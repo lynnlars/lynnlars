@@ -5,5 +5,5 @@ Hello!!✨
 - 💬 Ask me about anything!! I love talking 🌙
 - 📫 How to reach me: ✉️ lynn.lars20@gmail.com
 - 🎥 Currently watching: Bobs Burgers 🍔
-- 📖 Currently reading: Midnight in Chernobyl ☢️
+- 📖 Currently reading: Under The Banner Of Heaven 
 
